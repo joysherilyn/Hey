@@ -1,4 +1,4 @@
-# Sherilynasaurus
+# Sherilyn
 
 # Jan ist dumm
 
